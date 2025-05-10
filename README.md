@@ -1,3 +1,3 @@
 # LIONFISHAI
 
-https://github.com/user-attachments/assets/59984ab2-2072-4690-95f6-30245e2a32b2
+https://github.com/JodioVOrtex/LIONFISHAI/blob/main/ChatGPT%20Image%20May%2010,%202025,%2003_17_27%20AM.png?raw=true
